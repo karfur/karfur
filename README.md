@@ -2,7 +2,7 @@
 - 👀 I’m interested in art music
 - 🌱 I’m currently learning to draw better
 - 💞️ I’m looking to collaborate on drawin
-- 📫 How to reach me ...
+- 📫 How to reach me: lucjagazda77@gmail.com
 - 😄 Pronouns: she her
 - ⚡ Fun fact: love len
 
